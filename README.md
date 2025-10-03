@@ -1,1 +1,2 @@
-# whats-wrong-with-being-the-villainess
+# What’s Wrong with Being the Villainess?
+Dohee a vécu comme une poule mouillée, a péri misérablement et a été réincarnée dans un roman en tant que vilaine notoire. Mais il s’avère que sa nouvelle vie n’est pas sans avantages, car Deborah Seymour est aussi la méchante la plus riche de l’Empire. Il ne lui reste plus qu’à faire profil bas et à profiter de son insouciance… Si ce n’est que Deborah est condamnée à être envoyée dans un monastère ! Cette ancienne fainéante trouvera-t-elle un moyen d’éviter une nouvelle fin tragique, ou les défis d’une méchante seront-ils trop importants pour elle ?
